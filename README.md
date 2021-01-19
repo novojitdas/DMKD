@@ -1,4 +1,4 @@
-#DMKD CLASS VIDEOS
+# DMKD CLASS VIDEOS
 
 ##### N.B: Please Save this post, cause i will update this post with links after every DKMD classes.  
  
@@ -10,7 +10,7 @@
 
 ----------
 
-####January 18 ( DMKD CLASS - Lecture 4 - Chapter 2 )
+#### January 18 ( DMKD CLASS - Lecture 4 - Chapter 2 )
 
 
 **Google Drive:** [CLICK HERE](https://drive.google.com/file/d/10y3VrjB6gNaKn_DUgfj2mTRGFo5OjwmJ/view?usp=sharing)
