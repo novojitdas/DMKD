@@ -10,14 +10,22 @@
 
 ----------
 
-#### January 18 ( DMKD CLASS - Lecture 4 - Chapter 2 )
+#### January 18 ( DMKD CLASS - Lecture 5 - Chapter 2 & 3 )
 
 
-**Google Drive:** [CLICK HERE](https://drive.google.com/file/d/10y3VrjB6gNaKn_DUgfj2mTRGFo5OjwmJ/view?usp=sharing)
+**Google Drive:** [LINK](https://drive.google.com/file/d/10y3VrjB6gNaKn_DUgfj2mTRGFo5OjwmJ/view?usp=sharing)
 
-**Youtube:**   [CLICK HERE](https://youtu.be/ecfdIZusLaw)
+**Youtube:**   [LINK](https://youtu.be/ecfdIZusLaw)
 
+----------
+
+#### January 23 ( DMKD CLASS - Lecture 4 - Chapter 2 )
+
+
+**Google Drive:** [LINK](https://drive.google.com/file/d/13XpVDcBGsRc8ofXEhQFmwov_B7-1uNe9/view?usp=sharing)
+
+**Youtube:**   [LINK](https://youtu.be/LM5i_aqZKN0)
 
 -------------------------------------------------------------
-**LAST UPDATED:** 18 JANUARY 
+**LAST UPDATED:** 23 JANUARY 
  
