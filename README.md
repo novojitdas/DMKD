@@ -10,7 +10,7 @@
 
 ----------
 
-#### January 18 ( DMKD CLASS - Lecture 5 - Chapter 2 & 3 )
+#### January 18 ( DMKD CLASS - Lecture 4 - Chapter 2)
 
 
 **Google Drive:** [LINK](https://drive.google.com/file/d/10y3VrjB6gNaKn_DUgfj2mTRGFo5OjwmJ/view?usp=sharing)
@@ -19,13 +19,22 @@
 
 ----------
 
-#### January 23 ( DMKD CLASS - Lecture 4 - Chapter 2 )
+#### January 23 ( DMKD CLASS - Lecture 5 - Chapter 2 & 3 )
 
 
 **Google Drive:** [LINK](https://drive.google.com/file/d/13XpVDcBGsRc8ofXEhQFmwov_B7-1uNe9/view?usp=sharing)
 
 **Youtube:**   [LINK](https://youtu.be/LM5i_aqZKN0)
 
+----------
+
+#### January 25 ( DMKD CLASS - Lecture 6 - Chapter 3 )
+
+
+**Google Drive:** [LINK](https://drive.google.com/file/d/1vEVSH02DarE2bZ3M5t6nrILzkJ4VcheA/view?usp=sharing)
+
+**Youtube:**   [LINK](https://youtu.be/FdX885EB2kQ)
+
 -------------------------------------------------------------
-**LAST UPDATED:** 23 JANUARY 
+**LAST UPDATED:** 25 JANUARY 
  
