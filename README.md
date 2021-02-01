@@ -40,7 +40,7 @@
 #### January 30 ( DMKD CLASS - Lecture 7 - Chapter 3 )
 
 
-**Google Drive:** [LINK](https://drive.google.com/file/d/1ijbd1K5JZEKcgbvepxsH1IKHoQYDa1aR/view?usp=sharing)
+**Google Drive:** [LINK](https://drive.google.com/file/d/1ijbd1K5JZEKcgbvepxsH1IKHoQYDa1aR/view?usp=sharing) 
 
 **Youtube:**   [LINK](https://youtu.be/hOaSnNUR0o8)
 
@@ -48,7 +48,7 @@
 
 #### February 1 ( DMKD CLASS - Lecture 8 - Chapter 6 )
 
-**Today I face some problem on my net, so provided video on two part. but unfortunately 5-8 minutes are missing due to cut off**
+**Today I faced some problem on my net, so provided video into two parts. but unfortunately 5-8 minutes are missing due to cut off**
 
 ##### PART 1:
 **Google Drive:** [LINK](https://drive.google.com/file/d/1_LEjXclRi8SmAH4MiK0VHaIWJ00qHz4B/view?usp=sharing)
