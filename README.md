@@ -60,6 +60,14 @@
 
 **Youtube:**   [LINK](https://youtu.be/WyiusqZx8pM)
 
+#### February 6 ( DMKD CLASS - Lecture 9 - Review )
+
+
+**Google Drive:** [LINK](https://drive.google.com/file/d/11LaewsBZSajeCgpCATlF9QCbLc4fcBoH/view?usp=sharing) 
+
+**Youtube:**   [LINK](https://youtu.be/70rAyMYIqSo)
+
+
 -------------------------------------------------------------
 **LAST UPDATED:** 1 FEBRUARY 
  
